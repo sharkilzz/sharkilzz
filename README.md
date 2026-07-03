@@ -1,4 +1,4 @@
-<p data-importer="text" align="center">SHARKILZ<br>casino ／ zog<br>read more on on my [rentry](https://rentry.co/getshot)</p>
+<p data-importer="text" align="center">SHARKILZ<br>casino ／ zog<br>read more on on my rentry</p>
 
 ###
 
